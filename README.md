@@ -1,2 +1,2 @@
-# Ike-s_Swaglatro
+# Ike's_Swaglatro
 Balatro Mod
